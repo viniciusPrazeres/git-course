@@ -1,4 +1,1 @@
 #Git Course
-
-#Stephanye Alessandra <3
-#Eu AMO STEPHANYE ALESSANDRA PQ ELA É MINHA MOMO VIDA QUE EU AMO MAIS QUE TUDO :D
